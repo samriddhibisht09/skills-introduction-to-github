@@ -8,7 +8,7 @@
 
 ## 🚀 Share Your Success!
 Samriddhis notes 
-
+this is my dev 
 
 **Show off your new skills and inspire others!**
 
